@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [https://docs.google.com/document/d/1gFh0gTVwougZCsVWql5JvWUuaypl_nRIn7gEWTR27RM/edit?usp=sharing](https://docs.google.com/document/d/1gFh0gTVwougZCsVWql5JvWUuaypl_nRIn7gEWTR27RM/edit?usp=sharing)
 
-- ⚡ Fun fact **I want to marry my girlfriend!**
+- ⚡ Fun fact **I'm a Semi Professional Moto Sports Racer"
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
